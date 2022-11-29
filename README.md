@@ -1,4 +1,4 @@
-# Hey 👋, I'm **Viktor Gordienko**!
+# Hey 👋, I'm **Polina Malysheva**!
 
 <img align="right" alt="GIF"  src="https://media.giphy.com/media/3o7bu6KDIpS4OFRP6o/giphy.gif" />
 
